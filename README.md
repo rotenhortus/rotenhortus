@@ -1,1 +1,1 @@
-Сurrently Studying. Economic analysis and quantitative modeling focused on financial markets and macroeconomic dynamics.
+Сurrently studying economics, focused on financial markets and macroeconomic dynamics.
